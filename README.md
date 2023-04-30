@@ -1,3 +1,7 @@
+
+Testing my own ideas
+
+
 We got a takedown request by openAI's legal team...     
 
 discord server for updates / support: 
